@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on different Tech Projects 
 - 📫 How to reach me an email: izereyves9@gmail.com
 - 😄 Pronouns: I, You, He, She, It, We, They
-- ⚡ Fun fact: I feel comfortable when I am alone
+- ⚡ Fun fact: I don't know how to dance 
 
 <!---
 yves58-dot/yves58-dot is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
